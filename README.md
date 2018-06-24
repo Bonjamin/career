@@ -35,6 +35,8 @@ Bonjaminの職務経歴書
 
 [Freaket](https://slap.freaket.com)
 
+[Nomad Cloud](https://nomad-cloud.jp)
+
 [Yenta](https://yenta.talentbase.io/yenta/)
 
 [N-village](https://www.n-village.co.jp)
