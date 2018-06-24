@@ -25,7 +25,7 @@ Bonjaminの職務経歴書
 
 2014~2016 [Pocket Concierge](https://pocket-concierge.jp/)
 
-2017~2017 [ウヤマドットコーヒー (freelance)](https://uyama.coffee)
+2017~ [ウヤマドットコーヒー (freelance)](https://uyama.coffee)
 
 ## フリーランスでお世話になった会社
 
